@@ -63,3 +63,5 @@ This policy is effective as of 2021-09-24
 **Contact Us**
 
 If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at machoparto@gmail.com.
+
+This document was last updated on January 28, 2023 
